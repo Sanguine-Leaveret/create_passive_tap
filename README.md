@@ -7,6 +7,7 @@ Where to buy parts
 http://www.lanstore.co.kr/search_result.php?search=merge&searchstring=%C5%B0%BD%BA%C5%E6
 
 NA847
+
 Coms mount box
 
 reference
